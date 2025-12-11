@@ -68,7 +68,7 @@ I combine UI/UX design skills with frontend development to create clean, user-fo
 ## 📬 Connect With Me  
 - ✉️ Email: **nandhinirameshn66@gmail.com**  
 - 🔗 LinkedIn: [Nandhini R](https://www.linkedin.com/in/nandhini-r-59726a2a6/)  
-- 🎨 Behance: [Nandhini – UI/UX Portfolio](https://www.behance.net/Nandhini0720)  
+- 🎨 Behance: [Nandhini ](https://www.behance.net/Nandhini0720)  
 - 💼 Codolio Profile: https://codolio.com/profile/nandhini_rsk  
 
 ---
